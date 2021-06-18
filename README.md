@@ -1,8 +1,7 @@
 # fp-sisop-D08-2021
 
-Kepada Yth,
-Asisten Penguji mbak Erlin
-
+Kepada Yth,\
+Asisten Penguji mbak Erlin\
 Hal: Laporan Permohonan maaf
 
 
